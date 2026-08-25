@@ -511,7 +511,9 @@ AI/ML & Full-Stack Developer
 
 **GitHub:** https://github.com/swastikakumari9b44
 
-**LinkedIn:** *Add your LinkedIn URL*
+**LinkedIn:** www.linkedin.com/in/swastika-kumari-3525b7403
+
+
 
 ---
 
